@@ -1,4 +1,4 @@
-#  
+#  updated Scripts for blue lock rivals is the best blue lock rivals Script, featuring silent aim and invisibility. Safe and powerful for all your needs.
 
 
 
